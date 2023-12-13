@@ -1,5 +1,5 @@
 # 💫 About Me:
-Coming from Indonesia, searching his life meaning in London through developing and prototyping toys in IoT
+Searching life meaning in London through developing and prototyping toys in IoT
 
 
 ## 🌐 Socials:
